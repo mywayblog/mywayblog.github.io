@@ -1,1 +1,0 @@
-# mywayblog.github.io
